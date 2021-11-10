@@ -1,2 +1,2 @@
 # empty_location_v2
-https://drive.google.com/file/d/1IspB-rCWAvODIaYF_CMalaKiTghFDNws/view?usp=sharing
+https://drive.google.com/file/d/1akpPeDbTKuyzY05TPVapoUpnCCgiz7YU/view?usp=sharing
